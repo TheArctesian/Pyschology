@@ -1,0 +1,1 @@
+the proportion of a population who as some point in life has ever had the disorder

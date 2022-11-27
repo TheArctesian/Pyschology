@@ -1,0 +1,1 @@
+the proportion of a population that has a psycholgical disorder at a specific point in time

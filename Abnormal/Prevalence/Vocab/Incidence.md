@@ -1,0 +1,1 @@
+the number of new cases diagnosed in a certain perioid of time within a population, usally the last 12 months
